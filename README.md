@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TheTerribleProgrammer
 - 👀 I’m interested AI Dev.
 - 🌱 I’m currently learning everything. Google guide me.
-- 💞️ I’m looking to collaborate on a finding new foods and drinks.
+- 💞️ I’m looking to collaborate on not much. I was just told I should have one of these.
 - 📫 How to reach me - through telepathic powers, or simply find me online on TF2. 
 
 <!---
